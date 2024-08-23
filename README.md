@@ -1,0 +1,1 @@
+# Smart-Ranking-Easy-Version
